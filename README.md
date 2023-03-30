@@ -1,1 +1,1 @@
-This is the website for business!
+This is the website for my business!
